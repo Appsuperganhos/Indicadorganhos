@@ -1,0 +1,1 @@
+# Indicadorganhos
